@@ -1,1 +1,1 @@
-# organizando-objetivos-futuros-com-matem-tica-aplicada
+# organizando objetivos
